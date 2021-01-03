@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Shuang Ni
 
 I'm Shuang. 
